@@ -1,1 +1,3 @@
 # Jack the Ripper's Code
+
+n the dimly lit streets of Victorian London, a mysterious figure lurked in the shadows, leaving a trail of terror in his wake. Jack the Ripper, as the newspapers would later dub him, moved with a macabre precision, striking fear into the hearts of the city's inhabitants. As the gas lamps flickered overhead, the hunt for the elusive killer began, shrouded in the fog of uncertainty.
